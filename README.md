@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ahaan.shaikh25@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1iApZ7h8tv79H9Cx-EOsjnCwZD_46bQQA/view?usp=drive_link](https://drive.google.com/file/d/1iApZ7h8tv79H9Cx-EOsjnCwZD_46bQQA/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1iPUZsGMUiSUm7ueWeOhFjCEFVRZQhnwr/view?usp=share_link](https://drive.google.com/file/d/1iPUZsGMUiSUm7ueWeOhFjCEFVRZQhnwr/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
